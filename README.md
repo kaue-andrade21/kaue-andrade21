@@ -4,5 +4,5 @@
 ## What i offer
 * Beginner in HTML and programming
 * Ennergy for learning
-* wanting experiences
+* Wanting experiences
 ##This me! Wait for new updates!😁
